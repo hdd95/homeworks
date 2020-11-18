@@ -1,1 +1,5 @@
-# homeworks
+# homeworks 
+solidarity 
+comunity 
+brainstorming 
+brainwashing 
